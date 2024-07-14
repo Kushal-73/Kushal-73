@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me EMAIL ME AT kushalsingh10b@gmail.com I WILL BE THERE
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: "i am working on windows 7 "
 
 <!---
 Kushal-73/Kushal-73 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
